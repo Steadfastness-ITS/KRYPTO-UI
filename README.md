@@ -1,2 +1,2 @@
-# KRYPTO-UI ! [Uploading KRYPTO UI .png…] ()
+# KRYPTO-UI ! [Uploading KRYPTO UI .png…]()
 
