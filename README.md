@@ -1,1 +1,1 @@
-# KRYPTO-UI
+![KRYPTO Design](<KRYPTO UI .png>)
